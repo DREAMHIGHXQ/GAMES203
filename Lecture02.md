@@ -60,4 +60,32 @@
 
 ![](Lecture02/39.jpg)  
 
-![](Lecture02/40.jpg)
+![](Lecture02/40.jpg)  
+
+![](Lecture02/41.jpg)  
+
+![](Lecture02/42.jpg)  
+
+![](Lecture02/43.jpg)  
+
+![](Lecture02/44.jpg)  
+
+![](Lecture02/45.jpg)  
+
+![](Lecture02/46.jpg)  
+
+![](Lecture02/47.jpg)  
+
+![](Lecture02/48.jpg)  
+
+![](Lecture02/49.jpg)  
+
+![](Lecture02/50.jpg)  
+
+![](Lecture02/51.jpg)  
+
+![](Lecture02/52.jpg)  
+
+![](Lecture02/53.jpg)  
+
+![](Lecture02/54.jpg)
