@@ -1,3 +1,13 @@
+![](Lecture02/5.jpg)
+
+![](Lecture02/6.jpg)  
+
+![](Lecture02/7.jpg)  
+
+![](Lecture02/8.jpg)  
+
+![](Lecture02/9-1.jpg)  
+
 ![](Lecture02/9.jpg)  
 
 ![](Lecture02/10.jpg)  
